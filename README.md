@@ -1,1 +1,0 @@
-# GKAdekvat_vizitka
